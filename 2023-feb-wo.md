@@ -5,6 +5,8 @@
 - Box 
 ---
 
+## Dumbels: 10 lbs or 15 lbs
+
 ## Day One (Chest - Triceps)
 - Pushups
     - Sets: 4
