@@ -1,5 +1,5 @@
-# February 2023 Workout Routine
-## Start Weight: ~92.0 kgs
+# March 2023 Workout Routine
+## Start Weight: 89.6 kgs
 
 ## Common Daily
 - 15 minutes padjak bike
